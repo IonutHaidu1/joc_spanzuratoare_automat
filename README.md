@@ -1,0 +1,1 @@
+# joc_spanzuratoare_automat
